@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @JuliaKhodzko
 - 👀 I’m intereste 3d scanning and photogrammetry
-- 
